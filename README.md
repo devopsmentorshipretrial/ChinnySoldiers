@@ -1,1 +1,1 @@
-ChinnySoldiers will definitely reign!
+ChinnySoldiers will definitely reign!I am a STAR!
